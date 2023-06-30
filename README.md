@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **Automation Tester**
 
-- 📫 How to reach me **semt61@hotmail.com**
+- 📫 How to reach me **semt61@hotmail.com or +905534083961**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
